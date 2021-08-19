@@ -1,2 +1,2 @@
-[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/307239513229623296
-                            )](https://discord.com/users/307239513229623296)
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/628819243051515935
+                            )](https://discord.com/users/628819243051515935)
